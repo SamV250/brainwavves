@@ -1,1 +1,1 @@
-# brainwavves
+# brainwaves
